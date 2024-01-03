@@ -33,8 +33,8 @@ http://sbook.allabout.co.kr/Links/BUMEN/231108154443463	[11월호]
 http://sbook.allabout.co.kr/Links/BUMEN/231207150041618	[12월호]
 
 ### 기업탐방 MZ서포터즈 
-https://www.youtube.com/watch?v=uTUQGxZSEpw&t=24s	[1편]
-https://www.youtube.com/watch?v=es-fLTl6Vzo&t=37s	[2편]
-https://www.youtube.com/watch?v=O2Mx50_W6BY&t=5s	[3편]
-https://www.youtube.com/watch?v=8S7JRZA3vcc&t=49s	[4편]
+https://www.youtube.com/watch?v=uTUQGxZSEpw&t=24s	[1편]  
+https://www.youtube.com/watch?v=es-fLTl6Vzo&t=37s	[2편]  
+https://www.youtube.com/watch?v=O2Mx50_W6BY&t=5s	[3편]  
+https://www.youtube.com/watch?v=8S7JRZA3vcc&t=49s	[4편]  
 https://www.youtube.com/watch?v=9wGYVX0rsmg&t=57s	[5편]
