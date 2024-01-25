@@ -22,15 +22,16 @@
 ## 활동 성과
 
 ### BUMEN
-http://sbook.allabout.co.kr/Links/BUMEN/230407142201390	[04월호]
-http://sbook.allabout.co.kr/Links/BUMEN/230509164039779	[05월호]
-http://sbook.allabout.co.kr/Links/BUMEN/230608134405908	[06월호]
-http://sbook.allabout.co.kr/Links/BUMEN/230705161330818	[07월호]
-http://sbook.allabout.co.kr/Links/BUMEN/230810113305389	[08월호]
-http://sbook.allabout.co.kr/Links/BUMEN/230906134238672	[09월호]
-http://sbook.allabout.co.kr/Links/BUMEN/231012112936041	[10월호]
-http://sbook.allabout.co.kr/Links/BUMEN/231108154443463	[11월호]
-http://sbook.allabout.co.kr/Links/BUMEN/231207150041618	[12월호]
+http://sbook.allabout.co.kr/Links/BUMEN/230407142201390	[2023/04월호]
+http://sbook.allabout.co.kr/Links/BUMEN/230509164039779	[2023/05월호]
+http://sbook.allabout.co.kr/Links/BUMEN/230608134405908	[2023/06월호]
+http://sbook.allabout.co.kr/Links/BUMEN/230705161330818	[2023/07월호]
+http://sbook.allabout.co.kr/Links/BUMEN/230810113305389	[2023/08월호]
+http://sbook.allabout.co.kr/Links/BUMEN/230906134238672	[2023/09월호]
+http://sbook.allabout.co.kr/Links/BUMEN/231012112936041	[2023/10월호]
+http://sbook.allabout.co.kr/Links/BUMEN/231108154443463	[2023/11월호]
+http://sbook.allabout.co.kr/Links/BUMEN/231207150041618	[2023/12월호]
+http://sbook.allabout.co.kr/Links/BUMEN/240111144625678 [2024/01월호]
 
 ### 기업탐방 MZ서포터즈 
 https://www.youtube.com/watch?v=uTUQGxZSEpw&t=24s	[1편]  
